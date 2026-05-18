@@ -1,4 +1,4 @@
-#  
+#  Profesional brainrot evolution scripts es el mejor brainrot evolution scripts con apuntado automático y modo dios. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
